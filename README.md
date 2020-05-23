@@ -1,2 +1,0 @@
-# ngentot
-ewembe
